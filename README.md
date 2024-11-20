@@ -6,7 +6,7 @@
 
 Zirui Zheng: zirui.zheng92@myhunter.cuny.edu
 
-Takibur Chowdhury: Takibur.Chowdhury28@myhunter.cuny.edu
+Takibur Chowdhury: Takibur.Chowdhury28@myhunter.cuny.edu (Github username: Taki127)
 
 Mahim Ali: Mahim.Ali32@myhunter.cuny.edu
 
